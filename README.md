@@ -9,7 +9,7 @@
 
 - 📂 I’m building my GitHub profile with *hands-on backend projects and LeetCode solutions*
 
-- 📫 Reach me at: *[your email or LinkedIn here]*
+- 📫 Reach me at: *[tulipcodetay@gmail.com]*
 
 - ⚡ Fun fact: I love learning at night, and I’m slowly building up my GitHub from scratch 🚀
 
