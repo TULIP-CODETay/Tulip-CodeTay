@@ -11,7 +11,7 @@
 
 - 📫 Reach me at: *[tulipcodetay@gmail.com]*
 
-- ⚡ Fun fact: I love learning at night, and I’m slowly building up my GitHub from scratch 🚀
+- ⚡ Fun fact: Obviously TULIP is my favourite flower🚀
 
 ---
 
