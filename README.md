@@ -9,7 +9,7 @@
 
 - 📂 I’m building my GitHub profile with *hands-on backend projects and LeetCode solutions*
 
-- 📫 Reach me at: *[tulipcodetay@gmail.com]*
+- 📫 Reach me at: *[prashantj9191@gmail.com*
 
 - ⚡ Fun fact: Obviously TULIP is my favourite flower🚀
 
