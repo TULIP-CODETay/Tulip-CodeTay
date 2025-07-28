@@ -11,7 +11,7 @@
 
 - 📫 Reach me at: *[prashantj9191@gmail.com*
 
-- ⚡ Fun fact: Obviously TULIP is my favourite flower🚀
+
 
 ---
 
